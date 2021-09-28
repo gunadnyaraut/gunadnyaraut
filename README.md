@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gunadnyaraut
 - 👀 I’m interested in: UX/UI Desining
-- 🌱 I’m currently Working as: User Interface Designer
+- 🌱 I currently work as: User Interface Designer
 - 📫 How to reach me: gunadnya.raut@gmail.com
 
 <!---
