@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gunadnyaraut
-- 👀 I’m interested in: UX/UI Desining
+- 👀 I’m interested in: UX/UI Designing
 - 🌱 I currently work as: UX Designer
 - 📫 How to reach me: gunadnya.raut@gmail.com
 
