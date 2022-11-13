@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gunadnyaraut
 - 👀 I’m interested in: UX/UI Designing
-- 🌱 I currently work as: UX Designer
+- 🌱 I currently work as: UX Designer @HomeCapital
 - 📫 How to reach me: gunadnya.raut@gmail.com
 
 <!---
