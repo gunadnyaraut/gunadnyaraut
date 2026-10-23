@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gunadnyaraut
 - 👀 I’m interested in: UI/UX and Product Designing
-- 🌱 I currently work as: Sr. UX Designer @TechMahindra
+- 🌱 I currently work as: Sr Product Designer @TechMahindra
 - 📫 How to reach me: gunadnya.raut@gmail.com
 
 <!---
